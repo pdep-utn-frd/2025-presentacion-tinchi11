@@ -10,3 +10,10 @@
 
   ## Expectativas sobre la materia
 - Espero adquirir nuevas habilidades que me ayuden a mi formacion profesional
+
+
+# Una foto mía
+
+  
+  !![WhatsApp Image 2025-03-27 at 6 12 00 PM](https://github.com/user-attachments/assets/0e53f7d4-b133-4180-8543-9f4d2d897638)
+
